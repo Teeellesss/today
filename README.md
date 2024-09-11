@@ -1,9 +1,9 @@
-🇧🇷 Br. Duda
-🏀 Curry and James
-🎵 Little Frank
-✉️ "A persistência realiza o impossível."
-🥇 The Weeknd
-🥈 Animes
+- 🇧🇷 Br. Duda
+- 🏀 Curry and James
+- 🎵 Little Frank
+- ✉️ "A persistência realiza o impossível."
+- 🥇 The Weeknd
+- 🥈 Animes
 
 
 
